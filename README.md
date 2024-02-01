@@ -2,19 +2,19 @@
 <b>Chen Mendoza Sy 💕Kristine Marie Ygar Egid - Mag Asawang Scammer</b>
 SCAMMER BIO:
 
-Chen Medoza Sy - Bio
-Age: 30
-Birthday: June 9, 1993
-Father: Jing Sy
-Mother: Angeles Mendoza Sy
-Address: Blk 49 Lot 45 Rial St. Deca Homes Brgy. Saluysoy Meycauayan Bulacan
+Chen Medoza Sy - Bio<br>
+Age: 30<br>
+Birthday: June 9, 1993<br>
+Father: Jing Sy<br>
+Mother: Angeles Mendoza Sy<br>
+Address: Blk 49 Lot 45 Rial St. Deca Homes Brgy. Saluysoy Meycauayan Bulacan<br>
 
-Kristine Marie Ygar Egid - Bio
-Married Name:
-Kristine Marie E. Sy
-Age: 30
-Birthday: July 17, 1993
-Mother: Irma Ygar Egid
+Kristine Marie Ygar Egid - Bio<br>
+Married Name:<br>
+Kristine Marie E. Sy<br>
+Age: 30<br>
+Birthday: July 17, 1993<br>
+Mother: Irma Ygar Egid<br>
 
 <b>Modus ng mag asawang scammer</b><br>
 
