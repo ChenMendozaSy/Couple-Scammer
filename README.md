@@ -27,3 +27,8 @@ Meron akong mga client gusto mag swipe ng mga product pero via paypal link ang t
 
 Property Scam<br>
 May mga binebenta  akong property mga lupa, kotse at motor ang catch fake ang mga docs hehehe pa scam kana din. 
+
+More info at: <br>
+https://scammercouple.online/<br>
+https://www.pinterest.ph/chenmendozasy_scammer/<br>
+https://twitter.com/CoupleScammer<br>
