@@ -1,5 +1,5 @@
 # Couple-Scammer
-Chen Mendoza Sy 💕Kristine Marie Ygar Egid - Mag Asawang Scammer
+[b][color=red]Chen Mendoza Sy 💕Kristine Marie Ygar Egid - Mag Asawang Scammer[/color][/b]
 
 
 <b>Modus ng mag asawang scammer</b><br>
